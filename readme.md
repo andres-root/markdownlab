@@ -1,1 +1,1 @@
-# Welcome my friends!
+# Welcome my people!
